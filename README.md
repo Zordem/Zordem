@@ -1,11 +1,1 @@
-LOL
-
-
-
-wefedfw
-f
-wef
-we
-fwe
-fwe
-f
+Ich bin kuhl.
